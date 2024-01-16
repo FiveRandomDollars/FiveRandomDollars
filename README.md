@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FiveRandomDollars ☭☭☭
+- 👋 Hi, I’m @FiveRandomDollars. Hey look buddy, I'm an engineer. That means I solve problems, not problems like "What is beauty?" Because that would fall within the purview of your conundrums of philosophy. ☭☭☭
 - 👀 I’m interested in Reaganomics ☭☭☭
 - 🌱 I’m currently learning Tax Evasion ☭☭☭
 - 💞️ I’m looking to collaborate on War Crimes ☭☭☭
